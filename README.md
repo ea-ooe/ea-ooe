@@ -1,1 +1,1 @@
-# Hi, i do things sometimes.
+# Hi, I do things.
